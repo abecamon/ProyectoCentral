@@ -1,1 +1,16 @@
 funcionalidad
+
+Añadimos mas cosas	 
+
+
+
+
+
+
+
+
+
+
+
+
+		
